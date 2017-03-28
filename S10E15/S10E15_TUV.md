@@ -26,6 +26,8 @@
 
 然后, 就可以享受有输出的放松时间了
 
+![dd-170328.jpg（JPEG 图像，750x1206 像素） - 缩放 (54%)](http://openmindclub.qiniucdn.com/res/tapes/GC4/S10E15gDAMA/dd-170328.jpg?imageView2/2/w/420)
+
 -- ZQ 17.3.28.1420 280+字
 
 
