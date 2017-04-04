@@ -27,7 +27,7 @@
 
 ## 057
 
-[dd-170328](http://openmindclub.qiniucdn.com/res/tapes/GC4/S10E15gDAMA/dd-170328.jpg?imageView2/2/w/200)
+![dd-170328](http://openmindclub.qiniucdn.com/res/tapes/GC4/S10E15gDAMA/dd-170328.jpg?imageView2/2/w/200)
 
 ### 时间帐单不叫真
 
